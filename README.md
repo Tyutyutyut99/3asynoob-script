@@ -1,0 +1,2 @@
+# 3asynoob-script
+Easyscripthub
